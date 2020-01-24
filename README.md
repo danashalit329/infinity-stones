@@ -1,1 +1,1 @@
-# infinity-stones
+# infinity stones
